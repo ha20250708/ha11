@@ -10,4 +10,4 @@
 
 该平台专注提供各类优质的成人影片，涵盖欧美、日韩、国产等多个类别，满足不同观众的需求。所有影片均支持高清视频播放，无广告弹窗干扰，用户可以随时根据自己的喜好选择观看。同时，平台持续更新最新影片资源，保证您每次访问都能找到新的内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha11 ）</span>
